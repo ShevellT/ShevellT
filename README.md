@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ShevellT
 - 🌱 I’m currently learning SQL and tableau
-- 📫 How to reach me feel free to check out my Linkedin. www.linkedin.com/in/shevell-t-64408764 
+- 📫 This account is new because I lost my last one.
 
 
 
